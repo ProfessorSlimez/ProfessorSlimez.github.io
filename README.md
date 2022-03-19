@@ -1,2 +1,2 @@
-# ProfessorSlimez.github.io
-all of the code is made by https://github.com/NightfallGT/website what can you say? i became a skid slime
+# slimez.wtf
+im a gamer with a website 😎
